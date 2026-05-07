@@ -1,4 +1,4 @@
-
+Get the ultimate marvel rivals mod menu wh with marvel rivals mod menu secure Wall Detection - hero stun immunity and auto-healing. Featuring hero stun immunity and auto-healing,
 
 
 
